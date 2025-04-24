@@ -1,7 +1,7 @@
 # 💻 Andrew Howard  
 ### IT Help Desk & Cybersecurity Enthusiast  
 
-🌐 **GitHub**: [NightShade8](https://github.com/NightShade8)  
+🌐 **LinkedIN**: [Andrew Howard](www.linkedin.com/in/andrew-howard-8238092a3)  
 📧 **Email**: andrewih2003@gmail.com  
 
 ---
