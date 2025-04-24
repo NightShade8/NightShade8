@@ -1,7 +1,7 @@
 # 💻 Andrew Howard  
 ### IT Help Desk & Cybersecurity Enthusiast  
 
-🌐 **LinkedIN**: [Andrew Howard](www.linkedin.com/in/andrew-howard-8238092a3)  
+🌐 **LinkedIN**: [Andrew Howard](https://www.linkedin.com/in/andrew-howard-8238092a3)  
 📧 **Email**: andrewih2003@gmail.com  
 
 ---
